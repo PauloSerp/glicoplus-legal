@@ -1,1 +1,0 @@
-# glicoplus-legal
